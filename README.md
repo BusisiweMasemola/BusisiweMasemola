@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me 
 - 😄 Pronouns: she/he
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: The one type of food I would eat for the rest of my life if I had to pick Lasgna 
 
 <!---
 BusisiweMasemola/BusisiweMasemola is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
